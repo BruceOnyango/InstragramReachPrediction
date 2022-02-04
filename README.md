@@ -1,4 +1,5 @@
 ### Hi there 👋
+📫 How to reach me: brucejob1@gmail.com
 
 
 <!--
